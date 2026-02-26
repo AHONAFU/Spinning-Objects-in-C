@@ -1,3 +1,1 @@
-eta amar git file lmao lol very funny haha
-
-2nd update
+spinning shits in C. Obviusly ai helped, but I made sure I knwq how it worked.
